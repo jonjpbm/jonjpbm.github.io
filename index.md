@@ -5,7 +5,9 @@
 ### My Info 
 
 Jon Duarte
+
 jonjpbm@gmail.com
+
 (210) 827-2777
 
 ---
